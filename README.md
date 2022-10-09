@@ -1,6 +1,3 @@
-</p><img src="https://komarev.com/ghpvc/?username=AyeRaj&label=Profile%20Visitors&color=0e75b6&style=flat" alt="AyeRaj" />
-
-
 # <p align="center"> Welcome🙏🏻  
 
 Contact me for Freelance Project [Form](https://forms.gle/U9spFQGwt2TLF2WE6) 📌 Ping me on [LinkedIn](https://www.linkedin.com/in/heera9331/) for any Doubt Clearence
