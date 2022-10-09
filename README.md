@@ -5,7 +5,7 @@
 
 Contact me for Freelance Project [Form](https://forms.gle/U9spFQGwt2TLF2WE6) 📌 Ping me on [LinkedIn](https://www.linkedin.com/in/heera9331/) for any Doubt Clearence
 
-# Hi, I'm Raj!👋
+# Hi, I'm Heera Singh Lodhi!👋
 I'm a Computer Science student, and I'm professional in my work, as I have experience of more than 5+ projects that I have completed till now in the domain of Web Development (FrontEnd, Backend, and Full Stack).
 
 ### Skills I Have,
